@@ -4,4 +4,4 @@ Download and use the 2013 Null Island SVG file.
 
 Check in on Foursquare: http://4sq.com/null-island
 
-/Thanks @michalmigurski @kelsoscorner
+/Thanks @gnip @michalmigurski @kelsoscorner
